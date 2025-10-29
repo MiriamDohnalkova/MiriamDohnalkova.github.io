@@ -1,2 +1,2 @@
 # MiriamDohnalkova.github.io
-# Skoč mi na kokot
+# mír a lásku <33
