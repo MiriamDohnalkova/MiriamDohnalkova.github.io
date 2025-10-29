@@ -1,3 +1,2 @@
 # MiriamDohnalkova.github.io
-# Zlý večer paní Veroniko
-# ahojky holčiny
+# Dobrou noc Kubíku
